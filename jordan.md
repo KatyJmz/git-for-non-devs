@@ -1,2 +1,6 @@
 Describir en al menos 20 palabras que es lo que mas extranas de tu
 ciudad natal
+
+Extraño...
+La comida...
+Especialmente los mariscos, en Colima no he encontrado ningún lugar dondee vendan mariscos como los de allá, solo los del Plebe, pero no les llegan.
